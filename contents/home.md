@@ -11,7 +11,7 @@ Email: lihq_enso@163.com
 
 #### 求学经历
 
-2024/09-至今&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;南京信息工程大学气象学，博士 \
+2024/09-至今&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;南京信息工程大学气象学，博士 \
 2021/09-2024/06&nbsp;&nbsp;&nbsp;&nbsp;南京信息工程大学气象学，硕士 \
 2017/09-2021/06&nbsp;&nbsp;&nbsp;&nbsp;东北农业大学应用气象学，本科 
 
