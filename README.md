@@ -1,2 +1,2 @@
-# lihq-phd.github.io
-李昊谦个人主页
+# linchen_cv.github.io
+南京信息工程大学陈林教授个人主页
